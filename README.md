@@ -1,5 +1,15 @@
 - I’m @KavehsBeloved
-- Pronouns: She/Her, They/Them
+- A.K.A. Sora or Kaveh
+- Pronouns: She/Her, They/Them <He/Him is applicable>
+- Birthday: 11/10
+
+- Interest/s:
+- Genshin, HSR, Tears of Themis, Phasmophobia, Indigo Park, Pony Town, Haikyuu!!, Detective Conan,YouTubers
+- Fave YouTubers:
+- Markiplier, Jacksepticeye, Insym and DanTDM
+- Dislikes: Toxicity and Life, in general/pos
+- <Neutral Chaotic, idk>
+
 
 
 <!---
