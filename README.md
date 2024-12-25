@@ -4,7 +4,7 @@
 - Birthday: 11/10
 
 - Interest/s:
-- Genshin, HSR, Tears of Themis, Phasmophobia, Indigo Park, Pony Town, Haikyuu!!, Detective Conan,YouTubers
+- Genshin, HSR, Tears of Themis, Phasmophobia, Indigo Park, Pony Town, Haikyuu!!, Detective Conan, YouTubers
 - Fave YouTubers:
 - Markiplier, Jacksepticeye, Insym and DanTDM
 - Dislikes: Toxicity and Life, in general/pos
