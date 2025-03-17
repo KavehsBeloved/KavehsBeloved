@@ -1,12 +1,14 @@
 - I’m @KavehsBeloved
 - A.K.A. Sora or Kaveh
 - Pronouns: She/Her, They/Them <He/Him is applicable>
+- Age: 21
 - Birthday: 11/10
 
 - Interest/s:
-- Genshin, HSR, Tears of Themis, Phasmophobia, Indigo Park, Pony Town, Haikyuu!!, Detective Conan, YouTubers
-- Fave YouTubers:
+- Drawing,  Gaming, Genshin, HSR, Tears of Themis, Phasmophobia, Indigo Park, Pony Town, Haikyuu!!, Detective Conan, YouTubers
+- Fave YouTubers/VTubers:
 - Markiplier, Jacksepticeye, Insym and DanTDM
+- CyYu, Ironmouse,K9Kuro
 - Dislikes: Toxicity and Life, in general/pos
 - <Neutral Chaotic, idk>
 
