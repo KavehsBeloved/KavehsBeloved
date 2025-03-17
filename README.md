@@ -8,7 +8,7 @@
 - Drawing,  Gaming, Genshin, HSR, Tears of Themis, Phasmophobia, Indigo Park, Pony Town, Haikyuu!!, Detective Conan, YouTubers
 - Fave YouTubers/VTubers:
 - Markiplier, Jacksepticeye, Insym and DanTDM
-- CyYu, Ironmouse,K9Kuro
+- CyYu, Ironmouse, K9Kuro
 - Dislikes: Toxicity and Life, in general/pos
 - <Neutral Chaotic, idk>
 
