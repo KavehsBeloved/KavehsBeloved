@@ -4,12 +4,40 @@
 - Age: 21
 - Birthday: 11/10
 
-- Interest/s:
-- ***Kaveh***, Drawing,  Gaming, Genshin, HSR, Tears of Themis, Phasmophobia, Indigo Park, Pony Town, Haikyuu!!, Detective Conan, YouTubers
+- Like/s:
+- ***Kaveh***, Drawing, Gaming, Cookies, Hoodies, Cookies and Cream Ice Cream, Galaxy Aesthetic, the Moon and Stars, YouTubers
+
 - Fave YouTubers/VTubers:
 - Markiplier, Jacksepticeye, Insym and DanTDM
 - CyYu, Ironmouse, K9Kuro
-- Dislikes: Toxicity and then Life in general/pos
+
+
+Interest/s:
+
+-  Genshin Impact
+-  Honkai: Star Rail
+-  Honkai Impact 3rd 
+-  Wuthering Waves 
+-  Zenless Zone Zero
+-  Obey Me! SWD
+-  Tears of Themis
+-  Court of Darkness
+-  Sky: Children of the Light 
+-  Cult of The Lamb
+-  Phasmophobia
+-  Lethal Company
+-  R.E.P.O.
+-  Indigo Park
+-  Garten of Banban
+-  Pony Town
+-  Haikyuu!!
+-  Detective Conan
+-  The Disastrous Life of Saiki K.
+
+
+- Dislikes: Toxicity, ERP's, and then Life in general/pos
+
+
 - <Neutral Chaotic, i don't know anymore>
 
 
