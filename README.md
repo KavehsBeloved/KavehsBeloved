@@ -1,6 +1,6 @@
 Introduction
 - I’m @KavehsBeloved
-- A.K.A. [Sora]{Lavender} or [Kaveh]{Red}
+- A.K.A. [Sora]{Lavender} or [Kaveh]\color{Red}
 - Pronouns: She/Her, They/Them
 - Age: 21
 - Birthday: 11/10
