@@ -22,7 +22,7 @@ Interest/s:
 -  Honkai Impact 3rd 
 -  Wuthering Waves 
 -  Zenless Zone Zero
--  Obey Me! SWD/ Obey Me!: Nightbringer
+-  Obey Me! SWD/Obey Me!: Nightbringer
 -  Tears of Themis
 -  Court of Darkness
 -  Sky: Children of the Light 
@@ -35,7 +35,6 @@ Interest/s:
 -  Pony Town
 -  Haikyuu!!
 -  Detective Conan
--  The Disastrous Life of Saiki K.
 <br/>
  
 Dislikes: Toxicity, ERP's, and then Life in general/pos
