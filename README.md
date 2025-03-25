@@ -1,4 +1,4 @@
-$${\color{green}Introductions}$$
+$${\color{limegreen}Introductions}$$
 
 - I’m @KavehsBeloved
 - A.K.A. $${\color{lightblue}Sora}$$ or $${\color{red}Kaveh}$$
@@ -7,16 +7,16 @@ $${\color{green}Introductions}$$
 - Birthday: 11/10
  <br/>
  
-Like/s:
-- $${\color{green}Kaveh}$$, Drawing, Gaming, Cookies, Hoodies, Cookies and Cream Ice Cream, Galaxy Aesthetic, the $${\color{silver}Moon}$$ and the $${\color{lightyellow}Stars}$$, YouTubers
+$${\color{fuchsia}Like/s}$$:
+- ***Kaveh***, Drawing, Gaming, Cookies, Hoodies, Cookies and Cream Ice Cream, Galaxy Aesthetic, the Moon and the Stars, YouTubers
 <br/>
 
-Fave YouTubers/VTubers:
-- $${\color{red}Markiplier}$$, $${\color{green}Jacksepticeye}$$, $${\color{blue}Insym}$$ and $${\color{lightblue}DanTDM}$$
-- $${\color{purple}CyYu}$$, $${\color{fuchsia}Ironmouse}$$, and $${\color{maroon}K9Kuro}$$
+$${\color{blue}Fave YouTubers/VTubers}$$:
+- Markiplier, Jacksepticeye, Insym and DanTDM
+- CyYu, Ironmouse, and K9Kuro
 <br/>
 
-Interest/s:
+$${\color{Aquamarine}Interest/s}$$:
 
 -  Genshin Impact
 -  Honkai: Star Rail
@@ -38,7 +38,8 @@ Interest/s:
 -  Detective Conan
 <br/>
  
-Dislikes: Toxicity, ERP's, and then Life in general/pos
+$${\color{toxicgreen}Dislike/s}$$: 
+Toxicity, ERP's, and then Life in general/pos
 <br/>
 
 - < Mentally neutral chaotic and silly, unless I vibe with you >
