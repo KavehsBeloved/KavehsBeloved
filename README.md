@@ -3,7 +3,8 @@ Introduction
 - A.K.A. Sora or Kaveh
 - Pronouns: She/Her, They/Them <He/Him is also applicable>
 - Age: 21
-- Birthday: 11/10   <br/>
+- Birthday: 11/10
+ <br/>
  
 Like/s:
 - ***Kaveh***, Drawing, Gaming, Cookies, Hoodies, Cookies and Cream Ice Cream, Galaxy Aesthetic, the Moon and Stars, YouTubers
@@ -11,7 +12,7 @@ Like/s:
 - Fave YouTubers/VTubers:
 - Markiplier, Jacksepticeye, Insym and DanTDM
 - CyYu, Ironmouse, K9Kuro
-
+<br/>
 
 Interest/s:
 
@@ -34,10 +35,10 @@ Interest/s:
 -  Haikyuu!!
 -  Detective Conan
 -  The Disastrous Life of Saiki K.
-
+<br/>
  
 Dislikes: Toxicity, ERP's, and then Life in general/pos
-
+<br/>
 
 - <Neutral Chaotic, i don't know anymore>
 
