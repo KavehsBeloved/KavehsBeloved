@@ -3,7 +3,7 @@ Introduction
 - A.K.A. Sora or Kaveh
 - Pronouns: She/Her, They/Them <He/Him is also applicable>
 - Age: 21
-- Birthday: 11/10 
+- Birthday: 11/10 \
 
 
 Like/s:
