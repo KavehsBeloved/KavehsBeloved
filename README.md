@@ -8,8 +8,8 @@ Introduction
  
 Like/s:
 - ***Kaveh***, Drawing, Gaming, Cookies, Hoodies, Cookies and Cream Ice Cream, Galaxy Aesthetic, the Moon and Stars, YouTubers
- 
-- Fave YouTubers/VTubers:
+
+Fave YouTubers/VTubers:
 - Markiplier, Jacksepticeye, Insym and DanTDM
 - CyYu, Ironmouse, K9Kuro
 <br/>
