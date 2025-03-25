@@ -42,7 +42,7 @@ $${\color{Aquamarine}Interest/s}$$:
 - Alan Becker, AvA/AvM
 <br/>
 
-$${\color{darkblue}Fave artist/s}$$:
+$${\color{cyan}Fave artist/s}$$:
 - Alan Walker
 - Marshmello
 - Avicii
