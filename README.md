@@ -1,4 +1,4 @@
-$${\color{neongreen}Introductions}$$
+$${\color{silver}Introductions}$$
 
 - I’m @KavehsBeloved
 - A.K.A. $${\color{lightblue}Sora}$$ or $${\color{red}Kaveh}$$
