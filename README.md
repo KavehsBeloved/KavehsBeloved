@@ -2,7 +2,7 @@ $${\color{green}Introductions}$$
 
 - I’m @KavehsBeloved
 - A.K.A. $${\color{lightblue}Sora}$$ or $${\color{red}Kaveh}$$
-- Pronouns: She/Her, They/Them
+- Pronouns: $${\color{pink}She/Her}$$, $${\color{blue}They/Them}$$
 - Age: 21
 - Birthday: 11/10
  <br/>
