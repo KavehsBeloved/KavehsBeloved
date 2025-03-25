@@ -11,7 +11,7 @@ $${\color{fuchsia}Like/s}$$:
 - ***Kaveh***, Drawing, Gaming, Music, Cookies, Hoodies, Cookies and Cream Ice Cream, Galaxy Aesthetic, the Moon and the Stars, YouTubers, JP VA enthusiast
 <br/>
 
-$${\color{blue}Fave YouTubers/VTubers}$$:
+$${\color{aqua}Fave \ YouTubers/VTubers}$$:
 - Markiplier, Jacksepticeye, Gab Smolders, Insym, DanTDM, CDawgVA, Doro44, BranOnline, an Tuonto
 - CyYu, Ironmouse, and K9Kuro
 <br/>
