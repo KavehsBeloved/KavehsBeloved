@@ -3,10 +3,10 @@
 - Pronouns: She/Her, They/Them <He/Him is also applicable>
 - Age: 21
 - Birthday: 11/10 
--m
+ 
 - Like/s:
 - ***Kaveh***, Drawing, Gaming, Cookies, Hoodies, Cookies and Cream Ice Cream, Galaxy Aesthetic, the Moon and Stars, YouTubers
-\n
+ 
 - Fave YouTubers/VTubers:
 - Markiplier, Jacksepticeye, Insym and DanTDM
 - CyYu, Ironmouse, K9Kuro
@@ -39,8 +39,6 @@ Interest/s:
 
 
 - <Neutral Chaotic, i don't know anymore>
-
-git commit -m "My head line" -m "My content line."
 
 <!---
 KavehsBeloved/KavehsBeloved is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
