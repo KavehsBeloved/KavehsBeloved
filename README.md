@@ -42,7 +42,7 @@ $${\color{Aquamarine}Interest/s}$$:
 - Alan Becker, AvA/AvM
 <br/>
 
-$${\color{cyan}Fave /space artist/s}$$:
+$${\color{cyan}Fave \space artist/s}$$:
 - Alan Walker
 - Marshmello
 - Avicii
