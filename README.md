@@ -19,7 +19,7 @@ Interest/s:
 -  Honkai Impact 3rd 
 -  Wuthering Waves 
 -  Zenless Zone Zero
--  Obey Me! SWD
+-  Obey Me! SWD/ Obey Me!: Nightbringer
 -  Tears of Themis
 -  Court of Darkness
 -  Sky: Children of the Light 
