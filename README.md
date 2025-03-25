@@ -3,17 +3,17 @@
 - Pronouns: She/Her, They/Them <He/Him is also applicable>
 - Age: 21
 - Birthday: 11/10
-
+\n
 - Like/s:
 - ***Kaveh***, Drawing, Gaming, Cookies, Hoodies, Cookies and Cream Ice Cream, Galaxy Aesthetic, the Moon and Stars, YouTubers
-
+\n
 - Fave YouTubers/VTubers:
 - Markiplier, Jacksepticeye, Insym and DanTDM
 - CyYu, Ironmouse, K9Kuro
-
+\n
 
 Interest/s:
-
+\n
 -  Genshin Impact
 -  Honkai: Star Rail
 -  Honkai Impact 3rd 
@@ -33,10 +33,10 @@ Interest/s:
 -  Haikyuu!!
 -  Detective Conan
 -  The Disastrous Life of Saiki K.
-
+\n
 
 - Dislikes: Toxicity, ERP's, and then Life in general/pos
-
+\n
 
 - <Neutral Chaotic, i don't know anymore>
 
