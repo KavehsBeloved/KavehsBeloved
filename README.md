@@ -7,7 +7,8 @@ Introduction
  <br/>
  
 Like/s:
-- ***Kaveh***, Drawing, Gaming, Cookies, Hoodies, Cookies and Cream Ice Cream, Galaxy Aesthetic, the Moon and Stars, YouTubers
+- ***Kaveh***, Drawing, Gaming, Cookies, Hoodies, Cookies and Cream Ice Cream, Galaxy Aesthetic, the Moon and the Stars, YouTubers
+<br/>
 
 Fave YouTubers/VTubers:
 - Markiplier, Jacksepticeye, Insym and DanTDM
