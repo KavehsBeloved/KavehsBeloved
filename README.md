@@ -1,6 +1,5 @@
-Introduction
 - I’m @KavehsBeloved
-- A.K.A. $${\color{Sora}Light \space Blue}$$} or 
+- A.K.A. $${\color{lightblue}Sora}$$ or 
 - Pronouns: She/Her, They/Them
 - Age: 21
 - Birthday: 11/10
