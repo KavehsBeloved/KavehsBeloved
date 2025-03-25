@@ -37,7 +37,7 @@ Interest/s:
 -  The Disastrous Life of Saiki K.
 
  
-- Dislikes: Toxicity, ERP's, and then Life in general/pos
+Dislikes: Toxicity, ERP's, and then Life in general/pos
 
 
 - <Neutral Chaotic, i don't know anymore>
