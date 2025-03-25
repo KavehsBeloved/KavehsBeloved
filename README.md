@@ -1,7 +1,7 @@
 Introduction
 - I’m @KavehsBeloved
 - A.K.A. Sora or Kaveh
-- Pronouns: She/Her, They/Them <He/Him is also applicable>
+- Pronouns: She/Her, They/Them
 - Age: 21
 - Birthday: 11/10
  <br/>
