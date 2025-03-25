@@ -38,7 +38,7 @@ $${\color{Aquamarine}Interest/s}$$:
 -  Detective Conan
 <br/>
  
-$${\color{auburn}Dislike/s}$$: 
+$${\color{silver}Dislike/s}$$: 
 Toxicity, ERP's, and then Life in general/pos
 <br/>
 
