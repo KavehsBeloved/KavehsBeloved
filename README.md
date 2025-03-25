@@ -13,7 +13,7 @@ Like/s:
 
 Fave YouTubers/VTubers:
 - $${\color{red}Markiplier}$$, $${\color{green}Jacksepticeye}$$, $${\color{blue}Insym}$$ and $${\color{lightblue}DanTDM}$$
-- $${\color{purple}CyYu}$$, $${\color{fuchsia}Ironmouse}$$, K9Kuro
+- $${\color{purple}CyYu}$$, $${\color{fuchsia}Ironmouse}$$, $${\color{maroon}K9Kuro}$$
 <br/>
 
 Interest/s:
