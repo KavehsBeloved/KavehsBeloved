@@ -8,7 +8,7 @@ $${\color{green}Introductions}$$
  <br/>
  
 Like/s:
-- $${\color{green}Kaveh}$$, Drawing, Gaming, Cookies, Hoodies, Cookies and Cream Ice Cream, Galaxy Aesthetic, the $${\color{silver}Moon}$$Moon and the $${\color{lightyellow}Stars}$$, YouTubers
+- $${\color{green}Kaveh}$$, Drawing, Gaming, Cookies, Hoodies, Cookies and Cream Ice Cream, Galaxy Aesthetic, the $${\color{silver}Moon}$$ and the $${\color{lightyellow}Stars}$$, YouTubers
 <br/>
 
 Fave YouTubers/VTubers:
