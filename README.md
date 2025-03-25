@@ -3,7 +3,7 @@ Introduction
 - A.K.A. Sora or Kaveh
 - Pronouns: She/Her, They/Them <He/Him is also applicable>
 - Age: 21
-- Birthday: 11/10
+- Birthday: 11/10 <br\>
  
 Like/s:
 - ***Kaveh***, Drawing, Gaming, Cookies, Hoodies, Cookies and Cream Ice Cream, Galaxy Aesthetic, the Moon and Stars, YouTubers
