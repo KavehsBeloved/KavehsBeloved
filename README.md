@@ -1,5 +1,5 @@
 - I’m @KavehsBeloved
-- **A.K.A. <code style="color : lightskyblue">Sora</code> or $${\color{red}Kaveh}$$**
+- A.K.A. <code style="color : lightskyblue">Sora</code> or <code style="color : name_color">Kaveh</code>
 - Pronouns: She/Her, They/Them
 - Age: 21
 - Birthday: 11/10
