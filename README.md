@@ -1,4 +1,4 @@
-$${\color{limegreen}Introductions}$$
+$${\color{neongreen}Introductions}$$
 
 - I’m @KavehsBeloved
 - A.K.A. $${\color{lightblue}Sora}$$ or $${\color{red}Kaveh}$$
@@ -38,7 +38,7 @@ $${\color{Aquamarine}Interest/s}$$:
 -  Detective Conan
 <br/>
  
-$${\color{toxicgreen}Dislike/s}$$: 
+$${\color{limegreen}Dislike/s}$$: 
 Toxicity, ERP's, and then Life in general/pos
 <br/>
 
