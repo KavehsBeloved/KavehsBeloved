@@ -39,7 +39,7 @@ Interest/s:
 Dislikes: Toxicity, ERP's, and then Life in general/pos
 <br/>
 
-- < Mentally neutral chaotic, or unless I vibe with you >
+- < Mentally neutral chaotic and silly, unless I vibe with you >
 
 <!---
 KavehsBeloved/KavehsBeloved is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
