@@ -8,11 +8,11 @@ $${\color{limegreen}Introductions}$$
  <br/>
  
 $${\color{fuchsia}Like/s}$$:
-- ***Kaveh***, Drawing, Gaming, Cookies, Hoodies, Cookies and Cream Ice Cream, Galaxy Aesthetic, the Moon and the Stars, YouTubers
+- ***Kaveh***, Drawing, Gaming, Music, Cookies, Hoodies, Cookies and Cream Ice Cream, Galaxy Aesthetic, the Moon and the Stars, YouTubers, JP VA enthusiast
 <br/>
 
 $${\color{blue}Fave YouTubers/VTubers}$$:
-- Markiplier, Jacksepticeye, Insym and DanTDM
+- Markiplier, Jacksepticeye, Gab Smolders, Insym, DanTDM, CDawgVA, Doro44, BranOnline, an Tuonto
 - CyYu, Ironmouse, and K9Kuro
 <br/>
 
@@ -25,7 +25,7 @@ $${\color{Aquamarine}Interest/s}$$:
 -  Zenless Zone Zero
 -  Obey Me! SWD/Obey Me!: Nightbringer
 -  Tears of Themis
--  Court of Darkness
+-  Court of Darkness, Voltage Inc.
 -  Sky: Children of the Light 
 -  Cult of The Lamb
 -  Phasmophobia
@@ -36,7 +36,26 @@ $${\color{Aquamarine}Interest/s}$$:
 -  Pony Town
 -  Haikyuu!!
 -  Detective Conan
+-  The Amazing Digital Circus
+   - Sofia The First
+   - Miraculous Ladybug
+- Alan Becker, AvA/AvM
 <br/>
+
+$${\color{darkblue}Fave artist/s}$$:
+- Alan Walker
+- Marshmello
+- Avicii
+- Twenty-one Pilots
+- Panic! at the Disco
+- 5 Seconds of Summer
+- Walk the Moon
+- The Vamps
+- One Direction
+- ONE OK ROCK
+
+<br/>
+
  
 $${\color{silver}Dislike/s}$$: 
 Toxicity, ERP's, and then Life in general/pos
