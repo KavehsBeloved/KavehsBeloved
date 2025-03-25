@@ -40,7 +40,7 @@ Interest/s:
 
 - <Neutral Chaotic, i don't know anymore>
 
-
+git commit -m "My head line" -m "My content line."
 
 <!---
 KavehsBeloved/KavehsBeloved is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
