@@ -48,7 +48,10 @@ $${\color{cyan}Fave \space artist/s}$$:
 - Avicii
 - K-391
 - Tobu
-- F-777 
+- Black Gryph0n, Gabe Brown
+- tnbee
+- The Living Tombstone
+- Owl City
 - Twenty-one Pilots
 - Panic! at the Disco
 - 5 Seconds of Summer
