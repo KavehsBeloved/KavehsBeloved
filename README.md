@@ -8,7 +8,7 @@ $${\color{limegreen}Introductions}$$
  <br/>
  
 $${\color{fuchsia}Like/s}$$:
-- ***Kaveh***, Drawing, Gaming, Music, Cookies, Hoodies, Cookies and Cream Ice Cream, Galaxy Aesthetic, the Moon and the Stars, YouTubers, JP VA enthusiast
+- ***Kaveh***, Drawing, Gaming, Music, Cookies, Hoodies, Cookies and Cream Ice Cream, Galaxy Aesthetic, the Moon and the Stars, YouTubers, EN/JP VA enthusiast
 <br/>
 
 $${\color{aqua}Fave \ YouTubers/VTubers}$$:
