@@ -12,7 +12,7 @@ $${\color{fuchsia}Like/s}$$:
 <br/>
 
 $${\color{aqua}Fave \ YouTubers/VTubers}$$:
-- Markiplier, Jacksepticeye, Gab Smolders, Insym, DanTDM, CDawgVA, Doro44, BranOnline, an Tuonto
+- Markiplier, Jacksepticeye, Gab Smolders, Insym, DanTDM, CDawgVA, Doro44, BranOnline, and Tuonto
 - CyYu, Ironmouse, and K9Kuro
 <br/>
 
@@ -46,6 +46,9 @@ $${\color{cyan}Fave \space artist/s}$$:
 - Alan Walker
 - Marshmello
 - Avicii
+- K-391
+- Tobu
+- F-777 
 - Twenty-one Pilots
 - Panic! at the Disco
 - 5 Seconds of Summer
@@ -53,10 +56,8 @@ $${\color{cyan}Fave \space artist/s}$$:
 - The Vamps
 - One Direction
 - ONE OK ROCK
-
 <br/>
 
- 
 $${\color{silver}Dislike/s}$$: 
 Toxicity, ERP's, and then Life in general/pos
 <br/>
