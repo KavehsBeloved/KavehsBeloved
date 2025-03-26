@@ -37,8 +37,8 @@ $${\color{Aquamarine}Interest/s}$$:
 -  Haikyuu!!
 -  Detective Conan
 -  The Amazing Digital Circus
-   - Sofia The First
-   - Miraculous Ladybug
+- Sofia The First
+- Miraculous Ladybug
 - Alan Becker, AvA/AvM
 <br/>
 
