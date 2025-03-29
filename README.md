@@ -11,32 +11,34 @@ $${\color{fuchsia}Like/s}$$:
 - ***Kaveh***, Drawing, Gaming, Music, EDM genre, Cookies, Hoodies, Cookies and Cream Ice Cream, Galaxy Aesthetic, the Moon and the Stars, YouTubers, EN/JP VA enthusiast
 <br/>
 
-$${\color{aqua}Fave \ YouTubers/VTubers}$$:
+$${\color{aqua}Fave \space YouTubers/VTubers}$$:
 - Markiplier, Jacksepticeye, Gab Smolders, Insym, DanTDM, CDawgVA, Doro44, BranOnline, and Tuonto
 - CyYu, Ironmouse, and K9Kuro
 <br/>
 
-$${\color{Aquamarine}Interest/s}$$:
+$${\color{Aquamarine}Topics \space of \space Interest/s}$$:
 
--  Genshin Impact
--  Honkai: Star Rail
--  Honkai Impact 3rd 
--  Wuthering Waves 
--  Zenless Zone Zero
--  Obey Me! SWD/Obey Me!: Nightbringer
--  Tears of Themis
--  Court of Darkness, Voltage Inc.
--  Sky: Children of the Light 
--  Cult of The Lamb
--  Phasmophobia
--  Lethal Company
--  R.E.P.O.
--  Indigo Park
--  Garten of Banban
--  Pony Town
--  Haikyuu!!
--  Detective Conan
--  The Amazing Digital Circus
+- Genshin Impact
+- Honkai: Star Rail
+- Honkai Impact 3rd 
+- Wuthering Waves 
+- Zenless Zone Zero
+- Cookie Run: Kingdom
+- Food Fantasy
+- Obey Me! SWD/Obey Me!: Nightbringer
+- Tears of Themis
+- Court of Darkness, Voltage Inc.
+- Sky: Children of the Light 
+- Cult of The Lamb
+- Phasmophobia
+- Lethal Company
+- R.E.P.O.
+- Indigo Park
+- Garten of Banban
+- Pony Town
+- Haikyuu!!
+- Detective Conan
+- The Amazing Digital Circus
 - Sofia The First
 - Miraculous Ladybug
 - Alan Becker, AvA/AvM
