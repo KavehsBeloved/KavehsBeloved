@@ -39,6 +39,7 @@ Games
 - Food Fantasy
 - Obey Me! SWD/Obey Me!: Nightbringer
 - Tears of Themis
+- Love and Deepspace
 - Court of Darkness, Voltage Inc.
 - Sky: Children of the Light 
 - Cult of The Lamb
@@ -63,6 +64,7 @@ Anime
 - SerVamp
 - A3!: Act! Addict! Actors!
 - Shinigami Bocchan to Kuro Maid/The Duke of Death and his Maid
+- Hypnosis Microphone 
 <br/>
 
 Indie Animations/Others
