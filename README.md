@@ -12,12 +12,24 @@ $${\color{fuchsia}Like/s}$$:
 <br/>
 
 $${\color{aqua}Fave \space YouTubers/VTubers}$$:
-- Markiplier, Jacksepticeye, Gab Smolders, Insym, DanTDM, CDawgVA, Doro44, BranOnline, and Tuonto
+- Markiplier
+- Jacksepticeye
+- Gab Smolders
+- Insym
+- DanTDM
+- CDawgVA
+- Doro44
+- BranOnline
+- Tuonto
+<br/>
+
+VTubers
 - CyYu, Ironmouse, and K9Kuro
 <br/>
 
 $${\color{Aquamarine}Topics \space of \space Interest/s}$$:
 
+Games
 - Genshin Impact
 - Honkai: Star Rail
 - Honkai Impact 3rd 
@@ -36,9 +48,29 @@ $${\color{Aquamarine}Topics \space of \space Interest/s}$$:
 - Indigo Park
 - Garten of Banban
 - Pony Town
+- Ashes Town
+<br/>
+
+Anime 
 - Haikyuu!!
-- Detective Conan
+- Detective Conan/Case Closed
+- Bungo Stray Dogs
+- Hunter x Hunter
+- Daiya no Ace/Ace of Diamonds
+- Gakuen Babysitters
+- Yakuza's Guide to Babysitting
+- Ouran Highschool Host Club
+- SerVamp
+- A3!: Act! Addict! Actors!
+- Shinigami Bocchan to Kuro Maid/The Duke of Death and his Maid
+<br/>
+
+Indie Animations/Others
+- Hazbin Hotel
+- Helluva Boss
+- Murder Drones
 - The Amazing Digital Circus
+- My Little Pony: Friendship is Magic
 - Sofia The First
 - Miraculous Ladybug
 - Alan Becker, AvA/AvM
