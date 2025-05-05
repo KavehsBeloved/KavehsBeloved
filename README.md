@@ -39,7 +39,6 @@ Games
 - Wuthering Waves 
 - Zenless Zone Zero
 - Cookie Run: Kingdom
-- Food Fantasy
 - Obey Me! SWD/Obey Me!: Nightbringer
 - Tears of Themis
 - Love and Deepspace
@@ -67,7 +66,7 @@ Anime
 - SerVamp
 - A3!: Act! Addict! Actors!
 - Shinigami Bocchan to Kuro Maid/The Duke of Death and his Maid
-- Hypnosis Microphone 
+- Hypnosis Microphone/HypMic
 <br/>
 
 Indie Animations/Others
