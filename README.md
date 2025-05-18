@@ -1,10 +1,9 @@
 
-![Screenshot_20241002_043521](https://github.com/user-attachments/assets/f22eec54-c82a-43f0-9592-9ca71cc47c7c)
+![20250518_213950](https://github.com/user-attachments/assets/afbfb7ba-795c-4936-b0c0-ac8519907e82)
 
 $${\color{limegreen}Introductions}$$
 
-- I’m @KavehsBeloved
-- A.K.A. $${\color{lightblue}Sora}$$ or $${\color{red}Kaveh}$$
+- A.K.A. $${\color{lightblue}Sora}$$ or $${\color{red}Seira}$$
 - Pronouns: $${\color{pink}She/Her}$$, $${\color{orangered}They/Them}$$
 - Age: 21
 - Birthday: 11/10
