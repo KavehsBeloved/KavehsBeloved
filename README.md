@@ -1,3 +1,5 @@
+.
+ 
  $${\color{limegreen}Introductions}$$
  
 - A.K.A. $${\color{lightblue}Sora}$$ or $${\color{red}Seira}$$
