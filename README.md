@@ -1,5 +1,6 @@
-.
- 
+
+ ![20250603_094632](https://github.com/user-attachments/assets/33ebf76f-ed2c-4b4a-be55-24e4f5c6ed61)
+
  $${\color{limegreen}Introductions}$$
  
 - A.K.A. $${\color{lightblue}Sora}$$ or $${\color{red}Seira}$$
