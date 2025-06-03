@@ -1,7 +1,7 @@
 
 ![20250518_213950](https://github.com/user-attachments/assets/afbfb7ba-795c-4936-b0c0-ac8519907e82)
 
-- $${\color{limegreen}Introductions}$$
+ $${\color{limegreen}Introductions}$$
  
 - A.K.A. $${\color{lightblue}Sora}$$ or $${\color{red}Seira}$$
 - Pronouns: $${\color{pink}She/Her}$$, $${\color{orangered}They/Them}$$
