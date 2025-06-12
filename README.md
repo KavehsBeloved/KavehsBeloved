@@ -102,7 +102,8 @@ $${\color{silver}Dislike/s}$$:
 Toxicity, ERP's, and then Life in general/pos
 <br/>
 
-- < Mentally neutral chaotic and silly, unless I vibe with you >
+- | Mentally neutral chaotic and silly, unless I vibe with you |
+- | Dry to talk to unless I've talked to you before or I comment with your interests |
 
 <!---
 KavehsBeloved/KavehsBeloved is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
