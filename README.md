@@ -73,6 +73,8 @@ Indie Animations/Others
 - Helluva Boss
 - Murder Drones
 - The Amazing Digital Circus
+- Alien Stage (partly)
+- K-Pop Demon Hunters
 - My Little Pony: Friendship is Magic
 - Sofia The First
 - Miraculous Ladybug
